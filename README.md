@@ -27,4 +27,4 @@
     И т.д.
 
 
-Подробная информация о решении задачи: https://dzen.ru/a/Y_4AYljRWWEnlIzv
+Подробная информация о решении задачи: https://dzen.ru/a/ZAYbl-8j92z0IftA
